@@ -8,6 +8,8 @@ Merhaba! Benim adım Agnieszka ve ben Krakow'dan asosyal ve internet bağımlıs
 
 ![blondemo_2.jpg](blondemo_2.jpg)
 
+![blondemo_0.jpg](blondemo_0.jpg)
+
 ![blondemo_3.jpg](blondemo_3.jpg)
 
 
